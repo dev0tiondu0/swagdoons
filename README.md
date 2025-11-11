@@ -5,7 +5,7 @@
 
 HIHI!! i’m toast but you can call me by whoever im cosplaying!! i can be very awkward when interacting with people and i sincerely apologize for it
 
-i’m not normal about redswag.if you couldn’t tell (redswag int pretty please)
+im usually afk/offtab so whisper to interact
 
 don’t be afraid to int i don’t have (m)any friends so i’d really appreciate it : D please. also c + h whenever unless i explicitly say not to
 
